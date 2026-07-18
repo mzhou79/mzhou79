@@ -9,3 +9,5 @@ I'm a master student in Biostatistics at Brown University.
 📪 [victormo.zhou@gmail.com](mailto:victormo.zhou@gmail.com)
 
 📄 [My CV](./Mo_Zhou_Resume.pdf)
+
+I also enjoy micro-blogging on Weibo. You can find me as @秋爽斋大管家
