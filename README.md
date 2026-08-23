@@ -6,7 +6,7 @@ My methodology research focus on causal inference and network data. I'm also int
 
 I enjoy tennis, finanace and stock market, and reading.
 
-📪 [victormo.zhou@gmail.com](mailto:victormo.zhou@gmail.com)
+📪 [mo.zhou@utah.edu](mailto:mo.zhou@utah.edu)
 
 📄 [My CV](./Mo_Zhou_Resume.pdf)
 
