@@ -4,7 +4,7 @@ I'm a PhD student in population health science (concentrating in Biostatistics) 
 
 My methodology research focus on causal inference and network data. I'm also interested in healtcare system and policy applications.
 
-I enjoy tennis, finanace and stock market, and reading.
+I enjoy tennis, stock market, and reading about everything.
 
 📪 [mo.zhou@utah.edu](mailto:mo.zhou@utah.edu)
 
