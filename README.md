@@ -4,7 +4,7 @@ I'm a PhD student in the department of Population Health Science (concentrating 
 
 Before that, I got my MS in Biostatistics at Brown University, and BS and BA at Emory University.
 
-I enjoy tennis, stock market, and reading about everything.
+I enjoy tennis, stock market, and learning Spanish.
 
 📪 [mo.zhou@utah.edu](mailto:mo.zhou@utah.edu)
 
