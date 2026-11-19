@@ -6,4 +6,4 @@ I'm a PhD student in the department of Population Health Science (concentrating 
 
 📄 [My CV](./Mo_Zhou_Resume.pdf)
 
-I also enjoy micro-blogging on Weibo. You can find me at [@秋爽斋大管家](https://www.weibo.com/u/6000097933). Opinions are my own.
+I also enjoy micro-blogging on Weibo. You can find me at [@秋爽斋大管家](https://www.sina.cn/media/6000097933). Opinions are my own.
